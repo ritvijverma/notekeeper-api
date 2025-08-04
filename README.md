@@ -110,7 +110,7 @@ Example: /notes/6884b32babb1f413c55f0928
 
 > GitHub: @ritvijverma
 
-> LinkedIn: linkedin.com/in/ritvijverma1810
+> LinkedIn: linkedin.com/in/ritvij-verma
 
 > Instagram: @ritvij.verma
 
